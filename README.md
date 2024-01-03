@@ -33,7 +33,7 @@ C'est [un face à face](https://www.youtube.com/@shirleyAlmosni/featured) avec m
 
 Ah ! Des fois je joue les pretresses du recrutement sur scène en préchant la bonne parole. 
 
-J'ai eu la choix de faire les conférences suivantes : 
+J'ai eu la joie de faire les conférences suivantes : 
 
 - [La Keynote de Riviera Dev sur les tendances en recrutement IT](https://www.youtube.com/watch?v=cZWYBuWJTK4)
 
