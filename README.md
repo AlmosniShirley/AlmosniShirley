@@ -2,6 +2,16 @@
 
 Je m'appelle Shirley Almosni Chiche. Je suis indépendante depuis 2018. Je suis recruteuse IT et agent de carrière. Ca fait mot très stylé mais en fait j'aide tout simplement les indivus dans leur carrière informatique. Tout est explicité [ici](https://github.com/AlmosniShirley/Mon-travail-dagent-de-carriere)
 
+# Mon entreprise BUILD RH 
+
+Voici [les valeurs](https://github.com/AlmosniShirley/Pr-sentation-BUILD-RH) que je porte à travers ma petite entreprise. 
+
+Voici une [présentation complete](https://docs.google.com/document/d/1og_Y5CFfqmov3jaU7LIkMLdU3ihZLs8xUUARKjF51ms/edit) de mon positionnement. 
+
+Je mets "nous" sur mon site internet car ça fait bizarre de mettre des "je" partout mais en vrai je regne toute seule au sein de BUILD RH. 
+
+L'ensemble de mes offres sont [ici](https://github.com/AlmosniShirley/JobsBuildRH/issues) ou [ici](https://www.build-rh.com/offres-demplois/) (mais cela va changer avec la création de mon nouveau site Internet. 
+
 # Mes livres (peut-être un jour je serai invitée chez Ruquier pour l'étendue de mon oeuvre)
 
 - [Les joies du recruteurs](https://www.amazon.fr/Joies-Recruteur-Shirley-Almosni-Chiche/dp/2414178981) 
@@ -28,6 +38,8 @@ Vous pouvez le consulter [ici](https://shirleyalmosni.wordpress.com/)
 Alors ça c'est peut-être la meilleure blague. J'ai voulu faire genre mais en fait c'est juste mon petit coin vidéo avec la caméra de mon téléphone pour vous donner deux/trois conseils qui me viennent souvent sous la douche. 
 
 C'est [un face à face](https://www.youtube.com/@shirleyAlmosni/featured) avec moi, avec vous, avec la réalité du monde informatique ! 
+
+Dans la même logique, j'ai aussi un compte [TikTok](https://www.tiktok.com/@buildrh?_t=8ijhulMC2d6&_r=1) (très utile pour le sous-titrage !) 
 
 # Mes conférences 
 
