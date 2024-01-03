@@ -21,13 +21,13 @@ Vous pouvez le consulter [ici](https://shirleyalmosni.wordpress.com/)
 
 # Mon Slogan 
 
-![Mon ami Jean-Claude Dusse, grand philosophe du chasse-neige]([image.jpg](https://media.licdn.com/dms/image/D4E22AQEh7u7GfithFA/feedshare-shrink_2048_1536/0/1700169234382?e=1706140800&v=beta&t=e3HRxhzs-OROEuCP0x__sEYmNCpNxcXutsmbcRs8Naw))
+![Mon ami Jean-Claude Dusse, grand philosophe du chasse-neige](https://media.licdn.com/dms/image/D4E22AQEh7u7GfithFA/feedshare-shrink_2048_1536/0/1700169234382?e=1706140800&v=beta&t=e3HRxhzs-OROEuCP0x__sEYmNCpNxcXutsmbcRs8Naw)
 
 # Ma chaîne Youtube 
 
 Alors ça c'est peut-être la meilleure blague. J'ai voulu faire genre mais en fait c'est juste mon petit coin vidéo avec la caméra de mon téléphone pour vous donner deux/trois conseils qui me viennent souvent sous la douche. 
 
-C'est[un face à face](https://www.youtube.com/@shirleyAlmosni/featured) avec moi, avec vous, avec la réalité du monde informatique ! 
+C'est [un face à face](https://www.youtube.com/@shirleyAlmosni/featured) avec moi, avec vous, avec la réalité du monde informatique ! 
 
 # Mes conférences 
 
@@ -61,5 +61,9 @@ J'ai eu la choix de faire les conférences suivantes :
 - Le monde psy en général : la dépression, le neuro-arypisme, la psychologie socaiale, etc. Oui ça peut semblait très bizarre comme espace évasion et pourtant se pencher sur les problèmes sans tomber dedans c'est parfois ce que j'appelle être une équilibriste du bonheur. 
 - Cuisiner : éplucher des pommes de terre sur mes musiques favorites, c'est un régal !
 - Ecrire : ma grande passion. Je peux adorer écrire des annonces en recrutement comme me prendre pour un Orelsan du wish en me lançant dans l'écriture de slams ou encore dans l'écriture de chansons parodiques.
-- Rire et faire rire : je ne suis pas toujours drôle mais j'aime croire que j'offre tout de même un petit moment de bonheur avec les autres en partageant allégrement mes conneries. 
+- Rire et faire rire : je ne suis pas toujours drôle mais j'aime croire que j'offre tout de même un petit moment de bonheur avec les autres en partageant allégrement mes conneries.
+
+Voilà c'est tout pour le moment ! 
+
+Bien cordialement, bisous 😘
 
