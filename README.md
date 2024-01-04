@@ -31,7 +31,14 @@ Vous pouvez le consulter [ici](https://shirleyalmosni.wordpress.com/)
 
 # Mon Slogan 
 
+Jean-Claude Dusse, grand philosophe du chasse-neige !
+
 ![Mon ami Jean-Claude Dusse, grand philosophe du chasse-neige](https://media.licdn.com/dms/image/D4E22AQEh7u7GfithFA/feedshare-shrink_2048_1536/0/1700169234382?e=1706140800&v=beta&t=e3HRxhzs-OROEuCP0x__sEYmNCpNxcXutsmbcRs8Naw)
+
+Mon autre slogan après toutes ces années dans ce métier : 
+"La qualité d’un recruteur n’est pas d’être humain mais d’aimer suffisamment son job pour le rester"
+
+
 
 # Ma chaîne Youtube 
 
@@ -70,7 +77,7 @@ J'ai eu la joie de faire les conférences suivantes :
 - l'évasion fiscale (c'est bon c'est pour rire, je ne suis pas assez riche pour ça voyons !)
 - La lecture
 - Mes enfants, mon troisième job : je suis maman de deux enfants et c'est sport. 
-- Le monde psy en général : la dépression, le neuro-arypisme, la psychologie sociale, etc. Oui ça peut semblait très bizarre comme espace évasion et pourtant se pencher sur les problèmes sans tomber dedans c'est parfois ce que j'appelle être une équilibriste du bonheur. 
+- Le monde psy en général : la dépression, le neuro-atypisme, la psychologie sociale, etc. Oui ça peut sembler très bizarre comme espace évasion et pourtant se pencher sur les problèmes sans tomber dedans c'est parfois ce que j'appelle être une équilibriste du bonheur. 
 - Cuisiner : éplucher des pommes de terre sur mes musiques favorites, c'est un régal !
 - Ecrire : ma grande passion. Je peux adorer écrire des annonces en recrutement comme me prendre pour un Orelsan du wish en me lançant dans l'écriture de slams ou encore dans l'écriture de chansons parodiques.
 - Rire et faire rire : je ne suis pas toujours drôle mais j'aime croire que j'offre tout de même un petit moment de bonheur avec les autres en partageant allégrement mes conneries.
