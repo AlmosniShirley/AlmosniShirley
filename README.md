@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Je m'appelle Shirley Almosni Chiche. Je suis indépendante depuis 2018. Je suis recruteuse IT et agent de carrière. Ca fait mot très stylé mais en fait j'aide tout simplement les indivus dans leur carrière informatique. Tout est explicité [ici](https://github.com/AlmosniShirley/Mon-travail-dagent-de-carriere)
+Je m'appelle Shirley Almosni Chiche. Je suis indépendante depuis 2018. Je suis recruteuse IT et agent de carrière. Ca fait mot très stylé mais en fait j'aide tout simplement les individus dans leur carrière informatique. Tout est explicité [ici](https://github.com/AlmosniShirley/Mon-travail-dagent-de-carriere)
 
 # Mon entreprise BUILD RH 
 
