@@ -6,7 +6,9 @@ Je m'appelle Shirley Almosni Chiche. Je suis indépendante depuis 2018. Je suis 
 
 Voici [les valeurs](https://github.com/AlmosniShirley/Pr-sentation-BUILD-RH) que je porte à travers ma petite entreprise. 
 
-Voici une [présentation complete](https://docs.google.com/document/d/1og_Y5CFfqmov3jaU7LIkMLdU3ihZLs8xUUARKjF51ms/edit) de mon positionnement. 
+Voici une [présentation complete](https://docs.google.com/document/d/1og_Y5CFfqmov3jaU7LIkMLdU3ihZLs8xUUARKjF51ms/edit) de mon positionnement sur la partie recrutement. 
+
+Voici une [présention complete](https://github.com/AlmosniShirley/Mon-travail-dagent-de-carriere) de mon travail en tant qu'agent de carrière. 
 
 Je mets "nous" sur mon site internet car ça fait bizarre de mettre des "je" partout mais en vrai je regne toute seule au sein de BUILD RH. 
 
