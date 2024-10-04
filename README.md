@@ -35,7 +35,7 @@ Vous pouvez le consulter [ici](https://shirleyalmosni.wordpress.com/)
 
 Jean-Claude Dusse, grand philosophe du chasse-neige !
 
-![Mon ami Jean-Claude Dusse, grand philosophe du chasse-neige](https://media.licdn.com/dms/image/D4E22AQEh7u7GfithFA/feedshare-shrink_2048_1536/0/1700169234382?e=1706140800&v=beta&t=e3HRxhzs-OROEuCP0x__sEYmNCpNxcXutsmbcRs8Naw)
+"Alors si je peux me permettre de te donner un conseil, c’est, oublie qu’t’as aucune chance, vas-y, fonce ! On sait jamais, sur un malentendu ça peut marcher..."
 
 Mon autre slogan après toutes ces années dans ce métier : 
 "La qualité d’un recruteur n’est pas d’être humain mais d’aimer suffisamment son job pour le rester"
