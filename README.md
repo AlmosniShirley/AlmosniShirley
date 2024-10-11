@@ -12,7 +12,7 @@ Voici une [présention complete](https://github.com/AlmosniShirley/Mon-travail-d
 
 Je mets "nous" sur mon site internet car ça fait bizarre de mettre des "je" partout mais en vrai je regne toute seule au sein de BUILD RH. 
 
-L'ensemble de mes offres sont [ici](https://github.com/AlmosniShirley/JobsBuildRH/issues) ou [ici](https://www.build-rh.com/offres-demplois/) (mais cela va changer avec la création de mon nouveau site Internet. 
+L'ensemble de mes offres sont [ici](https://github.com/AlmosniShirley/JobsBuildRH/issues) ou [ici](https://www.build-rh.com/jobs/) (mais cela va changer avec la création de mon nouveau site Internet. 
 
 # Mes livres (peut-être un jour je serai invitée chez Ruquier pour l'étendue de mon oeuvre)
 
